@@ -1,3 +1,4 @@
+![NASA Reaction](https://media.giphy.com/media/S99cgkURVO62qemEKM/giphy.gif)
 ### 🫡 
 
 Hey there! thanks for checking out my GitHub.
